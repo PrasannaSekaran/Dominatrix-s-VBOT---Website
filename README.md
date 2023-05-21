@@ -1,2 +1,2 @@
 # Dominatrix-s-VBOT
- Virtusa's Jatayu Seeason - 3
+ Virtusa's Jatayu Season - 3
